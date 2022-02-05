@@ -1,6 +1,6 @@
 - 👋 Diga-me mais, @ttoloko
 - 👀 Observando o mundo, A vaca já foi pro brejo.
-- 🌱 Aberto a pacerias!
+- 🌱 Aberto a, parcerias!
 - 💞️ Procurando
 - 📫 email@ttoloko.site
 -🌎 https://ttoloko.site
@@ -18,7 +18,7 @@ https://yoonet.online
 
 - 👋 Diga-me mais, @ttoloko
 - 👀 Observando o mundo, A vaca já foi pro brejo.
-- 🌱 Aberto a pacerias!
+- 🌱 Aberto a, parcerias!
 - 💞️ Procurando
 - 📫 email@ttoloko.site
 
